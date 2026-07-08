@@ -1,0 +1,1 @@
+# july-8-exemption-test-akash-rel-can
